@@ -1,0 +1,1 @@
+![](https://count.getloli.com/get/@shiroaes?theme=rule34)
